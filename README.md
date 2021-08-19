@@ -1,6 +1,8 @@
 # Pigeon WAR
 
 
+# AIRDROP LIVE!! Claim at https://pigeonwar.com/
+
 ## In Pigeon WAR
 take care of your own pigeon as they fight increasingly stronger foes, and then face the legendary Pigeon God at the end... can you keep death far from your bird?
 
